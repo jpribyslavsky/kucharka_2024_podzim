@@ -49,11 +49,6 @@ _Autor: Jan Přibyslavský_
 8. V případě, že máte raději vejce kompletně provařená, pánev zakryjte pokličkou a směs nechte dusit, dokud vejce neztuhnou.
 9. Na stůl podávejte v pánvi, aby si každý mohl nabrat, posypané nasekanou čerstvou petrželkou nebo koriandrem.
 
-1. Máslo utřeme s nastrouhanými tvarůžky do pěny.
-2. Přidáme nadrobno nakrájenou cibuli, papriku, hořčici, čili a natřený česnek a žloutky.
-3. Vše promícháme a podáváme na opečeném, očesnekovaném chlebu s dobře vychlazeným pivem.
-
-
 PS: Kdo se nevyhýbá mléčným výrobkům, může do směsi spolu s vejci přidat i trošku nahrubo rozdrobené fety.
 
 _Autor: Internet s menší úpravou od Tereza Káčerková_
