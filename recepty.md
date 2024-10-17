@@ -281,3 +281,27 @@ _Autor: Viola Ježek_
 
 ---
 
+## Maková buchta (s citrónovou polevou)
+
+### Suroviny
+* 120 g tmavý cukr krystal
+* 3 vejce
+* 120 g polohrubé mouky
+* 2 špetky soly
+* 100 ml olivový olej
+* 100 ml mléka
+* 180 g mletého maku
+
+### Postup přípravy
+1. Vyšleháme vajíčka s cukrem a solí.
+2. Přidáme olej, mouku, prášek do pečiva, mléko.
+3. Ručně zamícháme mák.
+4. Vylejeme na pečící papír a pečeme na 180 stupňů asi 25 minut.
+
+Buchta se dá jíst takto, nebo je možné přidat citronovou polevu:
+1. Štávu z jednoho citronu smíchám s cukrem moučkou - poleva nesmí být příliš tekutá.
+2. Na buchtu se poleva dává, jakmile trochu vychladne (buchta nesmí být horká ani studená)
+
+_Autor: Hana Ondráčková_
+
+---
