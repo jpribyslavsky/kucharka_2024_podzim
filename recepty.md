@@ -298,7 +298,7 @@ _Autor: Viola Ježek_
 2. Mísu s těstem důkladně utěsníme a necháme 10-12 hodin kynout v pokojové teplotě.
 3. Po uplynutí této doby vyklopíme těsto na vál důkladně posypaný pšeničnou chlebovou moukou a na 20 minut přiklopíme aby neosychalo.
 4. Mezitím si připravíme ošatku, kterou důkladně vysypeme žitnou chlebovou moukou.
-5. Po uplynutí 20 minut si důkladně pomoučíme ruce a těsto několikrát přeložíme směrem dovnitř.
+5. Po uplynutí 20 minut si pomoučíme ruce a těsto několikrát přeložíme směrem dovnitř.
 6. Vytvoříme bochánek (podlouhlý nebo kulatý-podle tvaru ošatky) a opatrně těsto umístíme do ošatky.
 7. Ošatku utěsníme a necháme při pokojové teplotě kynout 3 hodiny.
 8. Po 3 hodinách rozpálíme troubu na 250 °C a necháme v ní nahřát i pečící nádobu s víkem (sklo/litina).
