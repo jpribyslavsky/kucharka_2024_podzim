@@ -281,3 +281,108 @@ _Autor: Viola Ježek_
 
 ---
 
+# French Macarons
+
+## Ingredients
+* 200 g [almond flour](https://www.diana-company.cz/mouka-z-loupanych-mandli-x-fine-500g/)
+
+* 200 g confectioner`s sugar
+
+* 135 g egg whites - room temperature
+
+* 270 g caster sugar
+
+* 80 g water
+
+* [GEL color](https://www.diana-company.cz/vyhledavani/?string=gelov%C3%A9%20barvivo) of your choice
+
+## Method
+
+- Weight all ingredients
+- Preheat the oven to 160°C.
+- Sieve almond flour and confectioner`sugar together in a large bowl. Weight again and make sure, mix is exactly 400 g.
+
+- In another large bowl (or kitchen robot bowl) prepare egg whites for meringue.
+
+- Mix 270 g of caster sugar with 80 g of water and put on the stove on medium heat. Put in the thermometer, sugar syrup should be exactly 116°C.
+- When temperature hits 113°C start beating egg whites.
+
+
+- The moment the temperature hits 116°C start pouring sugar syrup into egg whites. It is absolutely necessary to pour the sugar syrup slowly and along the inner side of the bowl to avoid caramel crystals to appear. 
+
+- Beat the egg whites for 10 minutes at medium speed until stiff peaks.
+Stiff peaks means, when you lift whisking beaters stiff peaks do not drop down but stay long and sharp. Meringue is done.
+
+- Now is the time to add gel food coloring if using only one color. Add a few drops and mix until color is well mixed.
+
+## Macaronage
+
+Next step is to mix meringue with almond flour mix. When you search for other recipes, you will find recommendations to add almond flour into meringue in three additions. I personally do not recommend but add all at once while starting with macaronage immediately.
+
+[Macaronage](https://www.youtube.com/watch?v=hTOpHaKocUs&ab_channel=ShineeD) is a key technique used in making French macarons. It refers to the process of mixing the meringue with almond flour mix to achieve the perfect batter consistency.
+
+The goal is to fold the mixture just enough to make it smooth and shiny, without over-mixing. It should flow like lava: when you lift the spatula, the batter should form [ribbons](https://www.youtube.com/shorts/6VdncUMtf1A) that slowly settle back into the bowl after about 10-20 seconds. 
+
+The right texture is crucial for the macarons to develop their signature smooth tops and "feet" during baking.
+It usually takes a few minutes to get the perfect texture and it is necessary not undermix or overmix. I recommend search for Youtube video for reference on how to macaronage properly.
+
+
+
+## Piping
+
+You will need a baking sheet turned upside down and a [silicone macaron mat](https://www.kulina.cz/silikonova-podlozka-na-makronky-se-znackami-40-x-30-cm/) made of fiberglass. Why? Because it conducts heat well, and the circles for the macarons are pre-drawn on it. Same goes for the baking sheet. It needs to be flipped to allow for proper circulation of hot air in the oven.
+
+Transfer the batter into a sturdy piping bag and cut the tip to about 1 cm wide. Then [pipe](https://www.youtube.com/watch?v=3iJJtEbVVks&ab_channel=ShineeD) individual macarons, stopping the batter just before the pre-drawn circle. I don’t recommend piping the macarons too close to the edges of the baking sheet.
+
+Once the macarons are piped, it’s important to sharply hit the baking sheet against the table several times to release air bubbles from the batter and to level the surface.
+
+## Baking
+
+Baking is the most tricky phase of macarons making. You have to know your oven really well.
+
+Place the sheet in an oven preheated to **160°C** for 1,5 minutes. Then open the oven, turn the sheet around, and bake again at 160°C for another 1,5 minutes. 
+
+At this point, the macaron’s “feet” are forming. If baked at too high a temperature for too long, the batter would rise too much, and later on, it would spread out and form a "skirt" around the edges. If baked for too short a time, the “feet” wouldn't form at all.
+
+After these 3 minutes, open the oven wide, lower the temperature to **145°C**, turn the sheet, and close the oven door, leaving a wooden spoon or something similar in the door to keep it slightly open. 
+
+Bake for 5 minutes. Then, turn the sheet again and bake for another 5 minutes at 145°C. During the final minutes, open the oven more frequently and check by touch to see if the macaron shells are firm.
+
+Remove the sheet from the oven and let it cool completely before removing the shells from the mat. Meanwhile, preheat the oven again to 160°C and prepare for the next batch. 
+
+The batch will yield approximately 4-6 trays and around 70 pairs of macaron shells. Once the macarons have cooled, you can pair and fill them as desired.
+
+## Tips and tricks
+
+### Egg whites
+It helps a lot to “age” egg whites a little. 
+
+How to do it: prepare egg whites a few days in advance and leave them in a box at room temperature like for 1 to 5 days. 
+
+This process will help to make egg whites more fluid, which helps a lot with later weighing.
+
+### Extra fine almond flour mix
+
+To achieve perfect texture it is recommended to run the mix with a food processor. This additional process will make almond flour mix finer and the final batter smoother.
+
+
+### Adding color
+Safest is to add color into whisked egg whites during beating, but if using more than one color you can separate batter during the macronage process, right before the end of the process. 
+
+To be able to do this correctly you have to know exactly in what stage of the macronage process you are and this comes with experience. 
+
+>_Author: Klára Kratochvílová_
+> 
+>See recipe with images here
+
+
+
+
+
+
+
+
+
+
+
+
