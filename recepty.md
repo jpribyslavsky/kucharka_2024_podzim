@@ -281,3 +281,28 @@ _Autor: Viola Ježek_
 
 ---
 
+## Salát Coleslaw
+
+### Suroviny
+* hlávka červeného zelí
+* 1 červená cibule
+* 1 mrkev
+* 1 jablko
+* 1/3 celeru
+* citrónová šťáva
+* 200 ml vegan majonéza
+* 100 ml rostlinné smetany
+* sůl
+* pepř
+* 2 lžíce octa
+
+### Postup přípravy
+1. Hlávku bílého zelí nakrouháme na tenké nudličky.
+2. Zelí posolíme a vymačkáme z něj tekutinu, kterou v sobě má.
+3. Mrkev a celer nakrouháme na nudličky.
+4. Cibuli oloupeme a nakrájíme na plátky.
+5. Vše, co jsme si nakrájeli, nyní smícháme a řádně promícháme.
+6. Přidáme rostlinnou smetanu, vegan majonézu, ocet a dle chuti opepříme.
+
+
+_Autor: Internet (Eva Koudelkova)_
