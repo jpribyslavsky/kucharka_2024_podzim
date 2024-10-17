@@ -281,4 +281,34 @@ _Autor: Viola Ježek_
 
 ---
 
+## Polévka z pečeného česneku
 
+### Suroviny
+* 3-5 paliček česneku (záleží, jak silnou chcete mít polévku)
+* cca 5 brambor
+* 1 větší cibule nebo půlku pórku
+* 1 lžíce olivového oleje
+* 1/2 lžičky kmínu
+* 1 lžička bylinek (bazalka, tymián nebo co máte rádi)
+* 1/4 lžičky mletého pepře
+
+* 400 ml vývaru
+* 130 ml smetany ke šlehání
+* sůl, pepř (podle potřeby na dochucení)
+
+### Postup přípravy
+1. U palic česneku seřízneme celé vršky
+2. Oloupeme a nakrájíme brambory, cibuli popřípadě pórek a společně s česnekem vložíme do pekáčku 
+3. Přidáme kmín, bylinky a zakápneme olivovým olejem
+4. Vše vložíme do trouby rozehřáté na 200 stupňů zhruba na 35 min. (10 min odekryté a 25 min pod alobalem)
+5. Po vychladnutí vše přesypeme do hrnce a česnek vymačkáme
+6. Zalijeme vývarem, smetanou, krátce povaříme a poté rozmixujeme
+7. Podle chuti můžeme přidat nadrobno opečenou slaninu, krutonky nebo pečivo
+
+
+Věřím, že tahle polévka Vás zahřeje :)
+Dobrou chuť!
+
+_Autor: Petra Blažejová_
+
+---
