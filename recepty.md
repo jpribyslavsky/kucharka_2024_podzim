@@ -285,14 +285,14 @@ _Autor: Viola Ježek_
 
 ### *Suroviny:*
 
-|Suroviny	| Gramáž [g]	| Počet	|
-|---------------|---------------|-------|
-|hořká čokoláda	| 180 	 	| -	|
-|máslo		| 180 		| - 	|
-|vejce 		| - 		| 3	|
-|cukr krystal 	| 180 		| -	|
-|hladká mouka 	| 70 		| -	|
-holandské kakao | 40 		| - 	|
+| Suroviny	       | Gramáž [g]	 | Počet	 |
+|-----------------|-------------|--------|
+| hořká čokoláda	 | 180 	 	     | -	     |
+| máslo		         | 180 		      | - 	    |
+| vejce 		        | - 		        | 3	     |
+| cukr krystal 	  | 180 		      | -	     |
+| hladká mouka 	  | 70 		       | -	     |
+| holandské kakao | 40 		       | - 	    |
 
 ### *Postup:*
 
