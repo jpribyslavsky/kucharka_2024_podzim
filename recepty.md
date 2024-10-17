@@ -305,7 +305,7 @@ _Autor: Viola Ježek_
 9. Když je trouba rozehřátá, nádobu na pečení opatrně vyjmeme, vyklopíme do ní chleba-ten nařízneme, přiklopíme víkem a necháme 25 minut péct.
 10. Po 25 minutách odklopíme a dopečeme do tmavě hnědé barvy.
 11. Když je chleba upečen opatrně vyndáme ze zapékací nádoby a necháme vychladnout na mřížce.
-12. 
+
 Přeji dobrou chuť. Pozor chléb je návykový =) 
 
 _Autor: Helena Simerská
