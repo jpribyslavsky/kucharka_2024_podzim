@@ -285,7 +285,7 @@ _Autor: Viola Ježek_
 
 ----------
 
-## Sakrajda - perníkový závin s povidly 
+## Sakrajda - perníkový závin s povidly a ořechy
 
 ### Suroviny
 * 300 g hladké mouky
