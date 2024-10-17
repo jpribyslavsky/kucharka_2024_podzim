@@ -375,7 +375,7 @@ To be able to do this correctly you have to know exactly in what stage of the ma
 
 >_Author: Klára Kratochvílová_
 > 
->See recipe with images here
+>See recipe with images [here](https://drive.google.com/file/d/1B6bWeclOiC7Ak1zGzrZZRY-qtr1HDWUG/view?usp=sharing)
 
 
 
