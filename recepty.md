@@ -283,6 +283,8 @@ _Autor: Viola Ježek_
 
 # French Macarons
 
+![Alt text](./images/makronky.jpeg)
+
 ## Ingredients
 * 200 g [almond flour](https://www.diana-company.cz/mouka-z-loupanych-mandli-x-fine-500g/)
 
