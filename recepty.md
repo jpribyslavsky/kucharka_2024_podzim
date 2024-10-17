@@ -281,3 +281,31 @@ _Autor: Viola Ježek_
 
 ---
 
+## Domácí kváskový chléb
+
+### Suroviny
+* 175 g pšeničné chlebové mouky
+* 175 g pšeničné hladké mouky
+* 100 g žitné chlebové mouky
+* 1 lžička žitného kvásku
+* 10 g soli
+* 5 g kmínu
+* 350 g vody
+
+
+### Postup přípravy
+1. Všechny suroviny smícháme dohromady a ideálně necháme několik minut hníst v kuchyňském robotu.
+2. Mísu s těstem důkladně utěsníme a necháme 10-12 hodin kynout v pokojové teplotě.
+3. Po uplynutí této doby vyklopíme těsto na vál důkladně posypaný pšeničnou chlebovou moukou a na 20 minut přiklopíme aby neosychalo.
+4. Mezitím si připravíme ošatku, kterou důkladně vysypeme žitnou chlebovou moukou.
+5. Po uplynutí 20 minut si důkladně pomoučíme ruce a těsto několikrát přeložíme směrem dovnitř.
+6. Vytvoříme bochánek (podlouhlý nebo kulatý-podle tvaru ošatky) a opatrně těsto umístíme do ošatky.
+7. Ošatku utěsníme a necháme při pokojové teplotě kynout 3 hodiny.
+8. Po 3 hodinách rozpálíme troubu na 250 °C a necháme v ní nahřát i pečící nádobu s víkem (sklo/litina).
+9. Když je trouba rozehřátá, nádobu na pečení opatrně vyjmeme, vyklopíme do ní chleba-ten nařízneme, přiklopíme víkem a necháme 25 minut péct.
+10. Po 25 minutách odklopíme a dopečeme do tmavě hnědé barvy.
+11. Když je chleba upečen opatrně vyndáme ze zapékací nádoby a necháme vychladnout na mřížce.
+12. 
+Přeji dobrou chuť. Pozor chléb je návykový =) 
+
+_Autor: Helena Simerská
