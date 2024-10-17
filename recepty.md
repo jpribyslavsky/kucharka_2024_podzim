@@ -280,4 +280,32 @@ Recept je na 4 porce.
 _Autor: Viola Ježek_
 
 ---
+-----------------
+# Houbové ragú s nudlemi
 
+### Suroviny
+* 200 g polohrubá mouka
+* sůl
+* 2 ks vejce
+* 1 lžíce rostlinný olej
+* 200 g čerstvé houby
+* 1 ks šalotka
+* 1 stroužek česnek
+* 2 lžíce olivový olej
+* 50 ml bílé víno
+* 50 ml zeleninový vývar
+* 100 ml smetana 12%
+* 1 hrst petrželová nať
+* pepř mletý
+* sůl
+
+### Postup přípravy
+1. Připravte si těsto na nudle. Mouku, špetku soli, vejce a olej zpracujte na hladké těsto a nechte ho alespoň hodinu odležet zabalené ve fóli
+2. Po odležení těsto rozválejte. Nakrájejte ho na široké nudle a dejte je vařit do vroucí osolené vody.
+3. Houby očistěte, šalotku nakrájejte nadrobno, česnek podrťte. V pánvi zahřejte olej a orestujte na něm houby. Pak přidejte šalotku a česnek a krátce opečte. Podlijte vínem a nechte ho vydusit. Zalijte vývarem a krátce provařte. Nakonec přilijte smetanu, prohřejte a sundejte z ohně. Dochuťte solí a pepřem.
+4. Do pánve přidejte uvařené nudle a promíchejte. Na talíři posypte nasekanou petrželkou.
+5. TIP: Nudle si můžete koupit už hotové nebo je připravit z plátů na lasagne. Houby použijte jakékoli. Když přijdete z lesa s prázdnou, zkuste třeba hlívu nebo šitake.
+
+Recept je na 4 porce.
+
+Autor: Julie Ňachaj
