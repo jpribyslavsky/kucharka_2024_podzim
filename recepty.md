@@ -246,6 +246,10 @@ _Autorka: Lucie Pohl Sladká, originální recept zde: https://www.maangchi.com/
 
 -----------------
 
+
+
+---
+
 ## Čočkový dhal
 
 ### Suroviny
@@ -279,5 +283,28 @@ Recept je na 4 porce.
 
 _Autor: Viola Ježek_
 
----
+----------
 
+## Sakrajda - perníkový závin s povidly 
+
+### Suroviny
+* 300 g hladké mouky
+* 200 g cukru moučka
+* 1 sáček kypřícího prášku do perníku
+* 1 lžíce kakaa
+* 2 vejce
+* 2 lžíce rumu
+* 2 lžíce tekutého medu
+* 4 lžíce mléka
+* 300 g povidel
+* 100 g vlašských ořechů
+
+### Postup přípravy
+1. Mouku prosejeme s moučkovým cukrem, kypřicím práškem a kakaem na vál.
+2. Přidáme jedno vejce, rum, med a mléko a vypracujeme vláčné těsto a necháme ho 60 minut odpočinout.
+3. Pak těsto rozdělíme na 2 části z každé vyválíme plát asi 4 mm silný.
+4. Potřeme každý polovinou povidel a posypeme polovinou rozemletých ořechů.
+5. Srolujeme do závinu, okraje přitiskneme k sobě a povrch potřeme vajíčkem.
+6. Pečeme v předehřáté troubě při 180 °C asi 30 minut.
+
+_Autor: Veronika Krausová_
