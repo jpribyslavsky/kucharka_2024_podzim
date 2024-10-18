@@ -281,3 +281,32 @@ _Autor: Viola Ježek_
 
 ---
 
+
+## Quiche loraine
+
+### Suroviny
+* 200 g listového těsta
+* 20 cl creme fraiche (zakysaná smetana)
+* 30 g másla
+* 200 g slaniny nakrájené na malé proužky
+* 3 vejce
+* 20 cl mléka
+* 1/2 lžíčky soli
+* špetka pepře
+* špetka muškátového oříšku
+
+
+### Postup přípravy
+1. Předehřejte troubu na 180°C a rozprostřete těsto do formy.
+2. Propíchejte těsto vidličkou a potřete jej máslem.
+3. Opečte slaninu na pánvi a zbavte ji přebytečného tuku (např. pomocí kuchyňské utěrky).
+4. Rozbijte vejce a smíchejte je s creme fraiche a mlékem.
+5. Do směsi přidejte slaninu.
+6. Dochuťte solí, pepřem a muškátovým oříškem.
+7. Směs vylijte do formy.
+8. Pečte 45 až 50 min v předehřáté troubě.
+9. Hotový quiche bude na povrchu dozlatova upečený.
+
+_Autor: Hana Rybářová_
+
+---
