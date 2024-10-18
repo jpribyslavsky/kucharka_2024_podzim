@@ -306,3 +306,38 @@ _Autor: Viola Ježek_
 
 
 _Autor: Internet (Eva Koudelkova)_
+
+## Rychlá polévka Pho - pro thermomix
+
+### Suroviny
+* 150 g žluté cibule, napůl 
+* 70 g zázvoru, čerstvého, oloupaného, na menší kousky
+* 2 stroužky česneku
+* 2 hvězdičky badyánu
+* 1 skořice, celá
+* 2 čajové lžičky koriandrových semínek
+* 600 g kuřecích křídel 
+* 200 g hovézí svíčkové, nakrájené na 2cm proužky
+* 1000 g vody 
+* chilli, čerstvé, dle chuti, bez semínek na proužky
+* 40 g jarní cibulky, nakrájené na jemno
+* 20 g rybí omáčky
+* 150 g rýžových nudlí
+* 100 g mungo výhonků 
+* 15 g koriandru, čerstvého, nasekaného
+* 1 limetka na čtvrtky 
+* cukr podle chuti
+
+### Postup přípravy
+1. Předehřejte si troubu na 230 °C.
+2. Na plech vyskládejte cibuli, zázvor a česnek, pečte 15 minut (230 °C). Následně přidejte hvězdičky badyánu, skořicový lusk a koriandr, pečte 4 minuty (230 °C).
+3. Do mixovací nádoby vložte kuřecí křidélka a svíčkovou, přidejte vodu, místo odměrky nasaďte na víko mixovací nádoby varný košík a vařte 20 min/100°C rychlost 1.
+4. Přidejte předem upečenou zeleninu a koření, namísto odměrky nasaďte na víko mixovací nádoby košík, vařte 25 min/95°C rychlost 1.
+5. Varoma mísu vyložte čistou mokrou utěrkou a přeceďte přes ni do jiné nádoby vzniklý vývar, abyste se zbavili drobných nečistot. Oddělte maso od kostí kuřecích křidélek, maso přendejte do misky a odložte stranou. Vypláchněte mixovací nádobu.
+6. Do mixovací nádoby nalijte vývar, přidejte chilli papričku, jarní cibulku (pouze zelenou část), rybí omáčku a vařte 15 min/100°C/rychlost 1.Mezitím si připravte nudle dle návodu.
+7. Nudle rozdělte do polévkových misek, přidejte maso, nasekanou jarní cibulku (bílou část), výhonky a koriandr. Zalijte vývarem, zakápněte limetkovou šťávou a přidejte špetku cukru.
+8. Hned podávejte.
+
+Pořiďte si Thermomix je to super. Dobrou chuť!
+
+_Autor: Michaela Prochazkova_
