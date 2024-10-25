@@ -319,23 +319,25 @@ _mokré_
 * 2 vejce
 * 120 ml mléka
 * 80 ml oleje
-* 1 balení rozpuštěné hořké čokolády
+* 1 balení (100 g) rozpuštěné hořké čokolády
 
 _suché_
 * 180 g hladké špaldové mouky
 * 40 g kakaa
 * 1 balení prášku do pečiva
-* cca 70 g xylitolu / erythritolu / cukru / nebo pár kapek Flavdrops (množství a druh sladila dle chuti a preferencí)
+* cca 70 g xylitolu / erythritolu / cukru / nebo pár kapek Flavdrops (množství a druh sladidla dle chuti a preferencí)
 * 60 g (2 odměrky) proteinu (lze nahradit mletými ovesnými vločkami nebo moukou)
 
-(+ volitelně pro větší obsah bílkovin: 1 balení nízkotučného tvarohu)
+_volitelně_
+* pro větší obsah bílkovin: 1 balení nízkotučného tvarohu
+* pro pocit _v bříšku jako v pokojíčku_: čokopecičky / nadrcená hořká čokoláda
 
 ### Postup přípravy
-1. Do jedné mísy dáme rozmačkané banány, přidáme k nim zbytek mokrých ingrediencí a pořádně promícháme.
+1. V míse smícháme rozmačkané banány s ostatními mokrými ingrediencemi a pořádně promícháme.
 2. Do druhé mísy prosejeme mouku a přidáme zbytek suchých ingrediencí.
-3. Nakonec promícháme vše dohromady a těsto nalejeme na plech vyložený pečícím papírem.
-4. Volitelně můžeme na povrch těsta lžicí rozmístit tvaroh, který předtím dle chuti osladíme.
-5. Pečeme na 180 stupňů přibližně 30 minut, můžeme v průběhu kontrolovat špejlí, protože každá trouba peče jinak :-).
+3. Nakonec promícháme vše dohromady a těsto nalijeme na plech vyložený pečícím papírem.
+4. Volitelně můžeme na povrch těsta lžící rozmístit tvaroh (který předtím dle chuti osladíme) a/nebo nadrcenou čokoládu/čokopecičky.
+5. Pečeme na 180 stupňů přibližně 30 minut. Můžeme v průběhu kontrolovat špejlí, protože každá trouba peče jinak :-).
 
 _Autor: Instagram a Martina Svobodová_
 
