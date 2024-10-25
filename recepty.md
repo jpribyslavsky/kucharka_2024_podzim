@@ -306,3 +306,37 @@ _Autor: Viola Ježek_
 
 
 _Autor: Internet (Eva Koudelkova)_
+
+---
+
+## Nejjednodušší fit čoko buchta
+
+### Suroviny
+(forma cca 34x28 cm)
+
+_mokré_
+* 400 g zralejších banánů
+* 2 vejce
+* 120 ml mléka
+* 80 ml oleje
+* 1 balení rozpuštěné hořké čokolády
+
+_suché_
+* 180 g hladké špaldové mouky
+* 40 g kakaa
+* 1 balení prášku do pečiva
+* cca 70 g xylitolu / erythritolu / cukru / nebo pár kapek Flavdrops (množství a druh sladila dle chuti a preferencí)
+* 60 g (2 odměrky) proteinu (lze nahradit mletými ovesnými vločkami nebo moukou)
+
+(+ volitelně pro větší obsah bílkovin: 1 balení nízkotučného tvarohu)
+
+### Postup přípravy
+1. Do jedné mísy dáme rozmačkané banány, přidáme k nim zbytek mokrých ingrediencí a pořádně promícháme.
+2. Do druhé mísy prosejeme mouku a přidáme zbytek suchých ingrediencí.
+3. Nakonec promícháme vše dohromady a těsto nalejeme na plech vyložený pečícím papírem.
+4. Volitelně můžeme na povrch těsta lžicí rozmístit tvaroh, který předtím dle chuti osladíme.
+5. Pečeme na 180 stupňů přibližně 30 minut, můžeme v průběhu kontrolovat špejlí, protože každá trouba peče jinak :-).
+
+_Autor: Instagram a Martina Svobodová_
+
+---
