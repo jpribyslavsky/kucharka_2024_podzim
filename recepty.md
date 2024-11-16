@@ -329,9 +329,9 @@ _Autor: Internet (Eva Koudelkova)_
 3. V jiné misce smícháme mouku se sodou, kypřícím práškem a solí.
 4. Sypkou směs vmícháme k máslu s cukrem.
 5. Přidáme kousky čokolády a naposledy zamícháme.
-6. Troubá předehřejeme na 175°C.
+6. Troubu předehřejeme na 170°C.
 7. Na plech s pečícím papírem pomocí polévkové lžíce klademe kopečky směsi (stačí jen lehce splácnout a nechat rozestupy - sušenky se samy roztečou do plochy).
-8. Pečeme cca 15 minut, dokud sušenky nezezlátnou.
+8. Pečeme 15-20 minut, dokud sušenky nezezlátnou.
 
 
 _Autor: internet (Zdeňka Kubíčková)_
