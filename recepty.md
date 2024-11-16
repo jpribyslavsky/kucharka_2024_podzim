@@ -306,3 +306,34 @@ _Autor: Viola Ježek_
 
 
 _Autor: Internet (Eva Koudelkova)_
+
+---
+
+## Cookies z arašídového másla
+
+### Suroviny
+* 100 g másla
+* 120 g arašídového másla
+* 150 g třinového cukru
+* 1 vejce
+* 170 g mouky hladké
+* 1 lžička vanilkového cukru
+* 2/3 lžičky jedlé sody
+* 2/3 lžičky prášku do pečiva
+* špetka soli
+* 50 g čokoládových kousků
+
+### Postup přípravy
+1. Máslo, arašídové máslo a vejce necháme zteplat na pokojovou teplotu.
+2. V misce důkladně utřeme změklá másla s cukrem, pak přidáme vejce a vanilkový cukr a znovu důkladně promícháme.
+3. V jiné misce smícháme mouku se sodou, kypřícím práškem a solí.
+4. Sypkou směs vmícháme k máslu s cukrem.
+5. Přidáme kousky čokolády a naposledy zamícháme.
+6. Troubá předehřejeme na 175°C.
+7. Na plech s pečícím papírem pomocí polévkové lžíce klademe kopečky směsi (stačí jen lehce splácnout a nechat rozestupy - sušenky se samy roztečou do plochy).
+8. Pečeme cca 15 minut, dokud sušenky nezezlátnou.
+
+
+_Autor: internet (Zdeňka Kubíčková)_
+
+---
