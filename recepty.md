@@ -281,7 +281,7 @@ _Autor: Viola Ježek_
 
 ----
 
-# **Brownies**
+## **Brownies**
 
 ### *Suroviny:*
 
@@ -322,17 +322,9 @@ _Autor: Viola Ježek_
 * Podávat.
 
 
-  author: Zuzana Ondráčková
+_Autor: Zuzana Ondráčková_
 
-
-
-
-
-
-
-
-
-
+----
 
 ## Polévka z pečeného česneku
 
