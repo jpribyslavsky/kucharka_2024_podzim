@@ -281,6 +281,32 @@ _Autor: Viola Ježek_
 
 ---
 
+
+## Čľupkaný chlebík 
+
+### Suroviny
+* staršie pečivo (chlieb, rožky, pokojne knedľa - nevyhadzuj, čľupkaj!)
+* vajíčka podľa množstva pečiva
+* 3-4 strúčiky cesnaku
+* olej na čľupkanie (vyprážanie)
+* 2 štipky soli
+* 1 štipka čierneho korenia (pepř)
+* 1 štipka červenej papriky (pokojne údenej, dodá výbornú chuť)
+* 1 štipka chilli (nemusí být)
+
+### Postup prípravy
+1. Pečivo si nakrájame podľa toho, ako máme radi.
+2. Do misky s vajíčkami pridáme všetky koreniny, pridáme pretlačený cesnak a dobre premiešame.
+3. Na panvici si medzitým rozpálime olej.
+4. Pečivo očľupkáme v pripravenom vajíčku, a následne z oboch strán dozlatiska čľupkáme v oleji.
+5. Po dočľupkaní (dosmažení) idálne ukladať na utierkový papier, aby sme sa zbavili prebytočného tuku :)
+
+Dobrú chuť!
+
+_Autor: Michaela Králiková_
+
+---
+
 ## Salát Coleslaw
 
 ### Suroviny
