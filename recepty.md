@@ -592,7 +592,7 @@ See recipe with images [here](https://drive.google.com/file/d/1B6bWeclOiC7Ak1zGz
 
 Přeji dobrou chuť. Pozor chléb je návykový =) 
 
-_Autor: Helena Simerská 
+_Autor: Helena Simerská_
 
 ---
 
@@ -657,7 +657,7 @@ _volitelně_
 _Autor: Instagram a Martina Svobodová_
 
 ---
------------------
+
 # Houbové ragú s nudlemi
 
 ### Suroviny
@@ -685,4 +685,6 @@ _Autor: Instagram a Martina Svobodová_
 
 Recept je na 4 porce.
 
-Autor: Julie Ňachaj
+_Autor: Julie Ňachaj_
+
+---
