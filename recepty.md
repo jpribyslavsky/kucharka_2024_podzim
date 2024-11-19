@@ -279,7 +279,60 @@ Recept je na 4 porce.
 
 _Autor: Viola Ježek_
 
----
+----
+
+# **Brownies**
+
+### *Suroviny:*
+
+| Suroviny	       | Gramáž [g]	 | Počet	 |
+|-----------------|-------------|--------|
+| hořká čokoláda	 | 180 	 	     | -	     |
+| máslo		         | 180 		      | - 	    |
+| vejce 		        | - 		        | 3	     |
+| cukr krystal 	  | 180 		      | -	     |
+| hladká mouka 	  | 70 		       | -	     |
+| holandské kakao | 40 		       | - 	    |
+
+### *Postup:*
+
+1. Předehřátí trouby a vymazání formy
+* Trouba vyhřáta na 180 °C.
+* Forma na pečení velikosti 20 x 20 cm vyložena pečícím papírem.
+
+2. Příprava čokolády
+* Máslo a čokoláda nakrájeny na větší kousky a vloženy do mísy.
+* Mísa umístěna do mikrovlnné trouby na 1 - 1,5 min při 750 W.
+
+3. Smíchání všech ingrediencí.
+* Šlehehání vajec s cukrem 1–2 minuty.
+* Vyšlehaná směs nalita do větší mísy.
+* Přidána rozpuštěná čokoláda s máslem.
+* Smíchání všech ingradiencí.
+* Prosátí mouky s holandským kakaem do připravené směsi.
+* Zamíchat a nalít do formy.
+
+4. Pečení směsi 
+* Formu vložit do předehřáté trouby.
+* Těsto péct při 175–180 °C po dobu 25 minut.
+
+5. Hotové brownies po vytažení z trouby
+* Nechat chladnout před krájením 30–45 min.
+* Nakrájet na 12 kousků.
+* Podávat.
+
+
+  author: Zuzana Ondráčková
+
+
+
+
+
+
+
+
+
+
 
 ## Polévka z pečeného česneku
 
