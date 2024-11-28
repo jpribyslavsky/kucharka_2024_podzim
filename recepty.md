@@ -729,6 +729,10 @@ _Autor: Julie Ňachaj_
 * 1 balíček vanilkového cukru
 * 1.5 hrnku hladké mouky
 
+### Suroviny na polevu
+* 2 ks čokolády na vaření
+* 2 kelímek zakysané smetany
+
 ### Postup přípravy
 Všechny suroviny na těsto smícháme dohromady a těsto nalijeme do vymazané vysypané formy nebo plechu.
 
