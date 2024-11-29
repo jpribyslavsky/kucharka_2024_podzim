@@ -718,7 +718,7 @@ _Autor: Julie Ňachaj_
 
 ---
 
-## Buchta z podmáslí
+## Buchta z podmáslí 
 
 ### Suroviny
 * 1 vejce
@@ -729,7 +729,8 @@ _Autor: Julie Ňachaj_
 * 1 balíček vanilkového cukru
 * 1.5 hrnku hladké mouky
 
-### Suroviny na polevu
+
+_Suroviny na polevu:_
 * 2 ks čokolády na vaření
 * 2 kelímek zakysané smetany
 
