@@ -718,6 +718,33 @@ _Autor: Julie Ňachaj_
 
 ---
 
+## Buchta z podmáslí 
+
+### Suroviny
+* 1 vejce
+* 2 lžíce kakaa
+* 1 hrnek podmáslí
+* 1 hrnek cukr moučka
+* 1 lžička sody
+* 1 balíček vanilkového cukru
+* 1.5 hrnku hladké mouky
+
+
+_Suroviny na polevu:_
+* 2 ks čokolády na vaření
+* 2 kelímek zakysané smetany
+
+### Postup přípravy
+Všechny suroviny na těsto smícháme dohromady a těsto nalijeme do vymazané vysypané formy nebo plechu.
+
+Buchtu z podmáslí pečeme ve vyhřáté troubě na 180 °C přibližně 10 - 20 minut. Až moučník vychladne, dáme navrch polevu,kterou připravíme tak, že ve vodní lázni rozpustíme čokoládu a smícháme ji se zakysanou smetanou. Necháme zatuhnout.
+
+Buchtu z podmáslí nakrájenou na kostky podáváme třeba ke kávě.
+
+_Autor: Jana Čermáková_
+
+---
+
 ## Sušenky s čokoládou
 
 ### Suroviny
@@ -738,3 +765,5 @@ _Autor: Julie Ňachaj_
 2. Lžící pak tvořte na plechy malé hromádky těsta, kolem nechávejte dostatek místa, protože sušenky se rozjedou na placičky. Pečte 8–10 minut do světlehnědé barvy. Upečené sušenky sundejte z plechů a nechte vychladnout na mřížce.
 
 _Autor: internet (Zuzana Kaczmarczyková)_
+
+---
