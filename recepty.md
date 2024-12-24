@@ -745,4 +745,25 @@ _Autor: Jana Čermáková_
 
 ---
 
+## Sušenky s čokoládou
 
+### Suroviny
+
+* Máslo 150 g
+* Cukr třtinový 100 g
+* Sůl
+* Cukr vanilkový 1 ks
+* Vejce 1 ks
+* Mouka hladká 225 g
+* Jedlá soda 1/2 člž
+* Čokoláda hořká 200 g
+
+### Postup
+
+1. Předehřejte troubu na 190 °C a dva plechy vyložte pečicím papírem. Máslo se špetkou soli a oběma druhy cukru vyšlehejte na nadýchaný krém. Potom zašlehejte vejce. Lžící vmíchejte prosátou mouku, sodu a kousky čokolády.
+
+2. Lžící pak tvořte na plechy malé hromádky těsta, kolem nechávejte dostatek místa, protože sušenky se rozjedou na placičky. Pečte 8–10 minut do světlehnědé barvy. Upečené sušenky sundejte z plechů a nechte vychladnout na mřížce.
+
+_Autor: internet (Zuzana Kaczmarczyková)_
+
+---
